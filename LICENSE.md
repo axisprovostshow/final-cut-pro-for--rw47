@@ -1,4 +1,4 @@
-# 
+# Final Cut Pro for macOS elite Transition: slow-motion & motion-tracking offers the most advanced Final Cut Pro for macOS transition, with slow-motion and motion-tracking. Ideal
 
 
 
